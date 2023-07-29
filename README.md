@@ -1,1 +1,1 @@
-# mtn_-ghana_kumasi
+# i love money
