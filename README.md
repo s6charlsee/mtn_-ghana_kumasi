@@ -1,0 +1,1 @@
+# mtn_-ghana_kumasi
